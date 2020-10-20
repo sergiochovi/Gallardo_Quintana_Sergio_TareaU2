@@ -1,0 +1,2 @@
+# Gallardo_Quintana_Sergio_TareaU2
+Ejercicio entrega
